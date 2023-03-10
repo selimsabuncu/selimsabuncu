@@ -1,1 +1,1 @@
-[KodYazarkenTamAnlamıylaBen](https://user-images.githubusercontent.com/90528083/224253844-4cf329d7-5ca8-4c87-9e11-3dd9a38b03b9.gif)
+![KodYazarkenTamAnlamıylaBen](https://user-images.githubusercontent.com/90528083/224254802-f7e928a9-33a8-459b-8d50-d4220a206c7c.gif)
